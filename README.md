@@ -1,6 +1,1 @@
 # NEXT_GitCollaboration
-
-
-
-
-asdfhlajsdhfluahsdlf
